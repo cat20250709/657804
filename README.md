@@ -44,4 +44,6 @@
 总结
 免费观看日本AV是一个既实惠又方便的选择。通过选择可靠的平台，你不仅可以享受高质量的影片，而且还可以避免广告干扰，享受流畅的观影体验。希望本文的资源推荐和安全建议能帮助你找到理想的观看渠道，尽情享受日本AV带来的精彩内容。
 
-<span style="display:none;">[Canonical link](  ）</span>
+
+
+<span style="display:none;">[Canonical link]( https://github.com/cat20250709/657804 ）</span>
